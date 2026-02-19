@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/af022cbe-ea15-43d6-9500-988a0755ce75" width="1100">
+<img src="https://github.com/user-attachments/assets/37a3187e-af1e-4010-a3b3-753f364aa3a5" width="1100">
   
 ![](https://komarev.com/ghpvc/?username=HITOGAWARII&color=green&style=plastic&label=stalkers) ![](https://hit.yhype.me/github/profile?account_id=168235619)
 
